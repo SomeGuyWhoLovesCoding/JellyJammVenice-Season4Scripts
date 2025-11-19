@@ -313,6 +313,23 @@ No! I just meant you're stuck in the past—
 **SEMMI**  
 GET OUT! GET OUT OF MY HOUSE! NOW!
 
+**SEMMI**
+*(to Maria)*
+Oh, and Maria, you told me like a Nazi leader to not have to put my dog where it belongs anymore...!
+
+**SEMMI**
+*(imitating)*
+And OOOOUOH, MR. HOLT, MY LEADER...!
+
+**BELLO**
+*(boiling in rage)*
+SEMMI, STOP IT!
+
+Semmi throws a beer bottle at a stove
+
+**SEMMI**  
+OUT OF HERE...!
+
 He physically pushes **BELLO** and **MAY** toward the door.
 
 **BELLO**  
@@ -693,17 +710,7 @@ That's not what I—
 *(standing)*  
 You said I lived in the Nazi era... You compared me to Hitler...!
 
-**SEMMI**
-*(transitions to being comedic)*
-You have basically told me like a Nazi leader to not have to put my dog where it belongs anymore...!
-
-**SEMMI**
-*(imitating)*
-And OOOOUOH, MR. HOLT, MY LEADER...!
-
-**BELLO**
-*(boiling in rage)*
-SEMMI, STOP IT!
+May starts speaking for herself
 
 **MAY**  
 *(stepping forward)*  
