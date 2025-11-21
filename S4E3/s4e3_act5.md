@@ -30,7 +30,7 @@ Moldy cheese from 2026. Meremiah said I could have a midnight snack.
 
 **SUNNY**
 (disappointed)
-Kelly. From 2026? That's eight years old.
+Kelly. From 2026? That's like—three years old.
 
 **KELLY**
 I was really hungry, okay? And I found it in the open drawers in the kitchen. Meremiah let me eat it as long as I didn't disturb anyone.
