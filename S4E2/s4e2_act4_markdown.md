@@ -327,7 +327,11 @@ SEMMI, STOP IT!
 
 Semmi throws a beer bottle at a stove
 
+**BELLO**
+AND WHY ARE YOU THROWING BEER BOTTLES THERE!?
+
 **SEMMI**  
+*(drunk)*
 OUT OF HERE...!
 
 He physically pushes **BELLO** and **MAY** toward the door.
@@ -336,7 +340,7 @@ He physically pushes **BELLO** and **MAY** toward the door.
 Wait, I'm sorry—
 
 **SEMMI**  
-OUT!
+OUT...!
 
 He shoves them through the doorway, slams the door, locks it.
 

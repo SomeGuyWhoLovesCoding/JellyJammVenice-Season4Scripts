@@ -62,7 +62,7 @@ No.
 **DAN**
 —and it's just absolutely wild! Like, that's more than a thousand people combined and—
 
-MEREMIAH, without warning, reaches out and gently nudges Dan to the side. He doesn't say anything. He just moves past him and back into his room, closing the door quietly.
+MEREMIAH, without warning, reaches out and gently nudges Dan to the side. He doesn't say anything. He just moves past him and lets him go back into the attic, to ensure it's okay.
 
 Dan stops mid-sentence, his enthusiasm deflating like a balloon.
 
