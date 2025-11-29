@@ -10,4 +10,4 @@ Scripts generated with claude sonnet 4.5 (before the big change):
 Rest:
 
 - S04E03 (claude.ai everyday claude)
-- S04E04 (will be me otherwise known as me generating it yet again)
+- S04E04 (otherwise known as me generating it yet again)
