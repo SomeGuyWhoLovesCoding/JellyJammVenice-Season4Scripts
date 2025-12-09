@@ -146,7 +146,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-**EXT. SNOWY YARD - DAY**
+## **EXT. SNOWY YARD - DAY**
 
 **COMEDY MONTAGE - "SNOWMAN CHAOS"**
 
@@ -162,7 +162,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-**EXT. SNOWY HILL - SUNSET**
+## **EXT. SNOWY HILL - SUNSET**
 
 *Everyone sits together on a hill, exhausted but happy, watching the sunset paint the sky orange and pink.*
 
@@ -466,7 +466,7 @@ Pizza can wait! Someone's out there!
 
 ---
 
-**EXT. FRONT YARD - CONTINUOUS**
+## **EXT. FRONT YARD - CONTINUOUS**
 
 *The group bursts outside into the bright snowy morning. They stop dead in their tracks, mouths dropping open.*
 
