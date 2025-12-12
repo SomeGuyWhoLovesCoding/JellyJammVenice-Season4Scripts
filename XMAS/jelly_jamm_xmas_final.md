@@ -900,203 +900,247 @@ Seconded.
 **BELLO**  
 Motion passed. Now let's get to work.
 
-*Everyone starts gathering pancake ingredients. Suddenly, MR. PRESTON points accusingly at MR. BRAD.*
-
-**MR. PRESTON**  
-You know what? This is all YOUR fault, Brad!
-
-**MR. BRAD** *(confused)*  
-Excuse me? How is Ms. Random bringing literal shit to the door MY fault?
-
-**MR. PRESTON**  
-Not just that! You jinxed us! Yesterday morning, you said "This is going to be the perfect December!" Remember?
-
-**MR. BRAD**  
-So what? That's called being optimistic!
-
-**MR. PRESTON**  
-Optimistic? We've had NOTHING but disasters since you said that! The snowmen got vandalized, Joeyson ate all the pizza, and now the sugar-coated poop incident!
-
-**MR. HOLT** *(trying to stay out of it)*  
-Guys, I don't think that's how jinxes work...
-
-**MR. BRAD**  
-Oh, you want to talk about jinxes? What about when YOU said "At least nothing else can go wrong" right before Yannaris showed up?
-
-**MR. PRESTON**  
-That was AFTER you jinxed us! I was already operating under your curse!
-
-**NATALIE**  
-Uh, I'm the one who just jinxed us a minute ago...
-
-**MR. PRESTON** *(ignoring her)*  
-And another thing! Who suggested we build the snowmen in the FRONT yard where anyone could vandalize them?
-
-**MR. BRAD**  
-That was a GROUP decision!
-
-**MR. PRESTON**  
-You said, and I quote, "The front yard has better snow!" Well look how that turned out!
-
-**BELLO**  
-Okay, this is getting ridiculous—
-
-**MR. BRAD**  
-Oh yeah? Well who left the pizza boxes on the counter instead of putting them in the fridge like Mina suggested?
-
-**MR. PRESTON**  
-Don't you DARE pin Joeyson's lack of self-control on me!
-
-**RITA**  
-They're really going at it...
-
-**MR. BRAD**  
-And WHO answered the door for Ms. Random? Oh wait, that was Bello, but you were STANDING RIGHT THERE and didn't stop him!
-
-**MR. PRESTON**  
-I was in the back! I specifically said I was too cold to come out!
-
-**MR. BRAD**  
-Convenient excuse!
-
-*MR. PRESTON suddenly gets up and starts gathering papers and string.*
-
-**GOOMO**  
-What are you doing?
-
-**MR. PRESTON**  
-I'm going to PROVE that Brad jinxed us!
-
-*He starts creating a conspiracy board on the wall, connecting events with string.*
-
-**MR. PRESTON** *(pointing at his makeshift board)*  
-Look! December 1st - Brad says "perfect December." December 2nd - SNOW happens, which leads to snowmen, which leads to Yannaris!
-
-**MR. BRAD**  
-Snow is a GOOD thing!
-
-**MR. PRESTON**  
-Not when it enables VANDALISM! Then, Brad suggests we have a pizza party—
-
-**MR. BRAD**  
-The Koopler Crew suggested that!
-
-**MR. PRESTON**  
-—which YOU encouraged! And that led to Joeyson's betrayal!
-
-**NOT JEREMIAH**  
-Hey, don't drag us into this!
-
-**MR. PRESTON** *(adding more string)*  
-And THEN, Brad was the one who said "I wonder who's at the door" which made Bello WANT to open it!
-
-**BELLO**  
-I don't think I needed encouragement...
-
-**MR. BRAD** *(standing up)*  
-You want to play the blame game? Fine!
-
-*MR. BRAD grabs different colored string and starts making his own connections on the board.*
-
-**MR. BRAD**  
-Preston, December 1st, 9 AM - YOU said "What could possibly go wrong with the heating system?" BOOM! West wing drops to freezing!
-
-**MR. PRESTON**  
-That's not even the same day as my comment!
-
-**MR. BRAD**  
-It's the SPIRIT of the jinx! Then YOU were the one who said "I hope Yannaris doesn't find out about the pizza party"—you SPOKE IT INTO EXISTENCE!
-
-**MR. PRESTON**  
-I never said that!
-
-**MR. BRAD**  
-You were THINKING it! I could see it on your face!
-
-**MINA** *(watching the board)*  
-This is... actually kind of impressive?
-
-**MAY**  
-They've connected everything to everything.
-
-*The board is now a chaotic web of string, notes, and accusations.*
-
-**MR. PRESTON**  
-And let's not forget who ate THREE slices of pizza, reducing our backup breakfast supply!
-
-**MR. BRAD**  
-That's grasping at straws and you know it!
-
-**MR. PRESTON**  
-The math PROVES you contributed to the shortage!
-
-**JOEYSON** *(quietly)*  
-I mean, I ate the saved slices, so...
-
-**MR. PRESTON & MR. BRAD** *(simultaneously)*  
-NOT NOW, JOEYSON!
-
-**DAN**  
-Should we stop them?
+*MEREMIAH, MR. PRESTON, and MR. BRAD exchange glances, then look at DAN.*
 
 **MEREMIAH**  
-I kind of want to see where this goes.
+Dan... can we talk to you for a minute?
 
-**MR. BRAD** *(pulling out more string)*  
-You know what the REAL problem is? You're a pessimist! You expect things to go wrong, so they DO!
+**DAN** *(nervous)*  
+Uh... sure?
 
 **MR. PRESTON**  
-And YOU'RE too optimistic! You tempt fate with your reckless positivity!
-
-**BELLO** *(finally stepping in)*  
-OKAY! ENOUGH!
-
-*Everyone freezes.*
-
-**BELLO**  
-Neither of you jinxed anything! Sometimes crazy stuff just HAPPENS! Yannaris has always been weird, Joeyson loves pizza too much, and Dan made a questionable decision inviting Ms. Random!
+In the other room.
 
 **DAN**  
-Hey!
-
-**BELLO**  
-The point is - none of this is because someone said something optimistic OR pessimistic! It's just... December being December!
-
-**RITA**  
-He's right. This is just how the holidays go sometimes.
-
-**GOOMO**  
-Chaotic and unpredictable.
-
-**NATALIE**  
-But ultimately still fun?
-
-*MR. PRESTON and MR. BRAD look at each other, then at their elaborate conspiracy board.*
-
-**MR. PRESTON** *(sheepishly)*  
-I... may have gotten a little carried away.
+That doesn't sound good...
 
 **MR. BRAD**  
-Yeah, same here. Sorry for saying you jinxed us.
+Just come on.
+
+*The four of them head to the living room, leaving the others in the kitchen.*
+
+---
+
+## **INT. LIVING ROOM - CONTINUOUS**
+
+*DAN stands awkwardly as MEREMIAH, MR. PRESTON, and MR. BRAD face him.*
+
+**DAN**  
+Look, I know what you're going to say—
 
 **MR. PRESTON**  
-And I'm sorry for blaming your optimism.
+Do you? Because I'm not even sure where to START!
 
-*They shake hands.*
+**MEREMIAH**  
+Dan, what were you THINKING inviting Ms. Random?
 
-**MR. HOLT**  
-So are we finally making those pancakes?
+**DAN**  
+I told you! I thought she seemed cool in the photo! She had an officer uniform and everything!
+
+**MR. BRAD**  
+A photo from when she was a TEENAGER! That was probably, what, ten years ago?
+
+**DAN**  
+...Twelve.
+
+**MR. PRESTON**  
+TWELVE YEARS?! People change A LOT in twelve years!
+
+**MEREMIAH**  
+Did you even talk to her recently? Like, a phone call? A text? Anything to gauge what she was like NOW?
+
+**DAN** *(defensive)*  
+We texted! She seemed normal!
+
+**MR. BRAD**  
+What did she say, exactly?
+
+**DAN** *(pulling out phone)*  
+Uh... "Cool, I'll bring a gift."
+
+**MR. PRESTON**  
+And you didn't think to ask what KIND of gift?
+
+**DAN**  
+I thought it would be like... cookies or something!
+
+**MEREMIAH**  
+Cookies. You thought Ms. Random would bring cookies.
+
+**DAN**  
+I mean... yeah?
+
+**MR. BRAD**  
+Instead she brought LITERAL SHIT covered in SUGAR!
+
+**DAN**  
+How was I supposed to know she'd do that?!
+
+**MR. PRESTON**  
+By doing LITERALLY ANY research on who she is now! A simple social media check!
+
+**DAN**  
+She doesn't have social media!
+
+**MEREMIAH**  
+That should have been your FIRST red flag!
+
+**MR. BRAD**  
+Who doesn't have social media in 2025?
+
+**DAN**  
+Lots of people! You're being judgmental!
+
+**MR. PRESTON**  
+We're being CAREFUL! There's a difference!
+
+**MEREMIAH** *(sighing)*  
+Look, Dan... we're not trying to gang up on you—
+
+**MR. PRESTON**  
+I kind of am.
+
+**MEREMIAH**  
+—but you made Maria BARF. She's a kid! She didn't need to see... whatever that was!
+
+**DAN** *(genuinely remorseful)*  
+I know... I feel terrible about that.
+
+**MR. BRAD**  
+And the smell! We're going to be airing out this house for DAYS!
+
+**DAN**  
+It was December! I thought the cold would help!
+
+**MR. PRESTON**  
+The cold doesn't neutralize the smell of POOP, Dan!
+
+**MEREMIAH**  
+Plus, you gave Yannaris another excuse to show up! He literally called her his "waifu"!
+
+**DAN**  
+Okay, THAT part wasn't my fault! How was I supposed to know they knew each other?
+
+**MR. BRAD**  
+Birds of a feather, Dan. Weird people know weird people.
+
+**DAN** *(defensive)*  
+That's not fair!
+
+**MR. PRESTON**  
+You know what's not fair? Bello having to deal with ANOTHER disaster on top of Yannaris and Joeyson!
+
+**DAN**  
+I was trying to do something NICE! I thought inviting someone from my past would be a cool December surprise!
+
+**MEREMIAH**  
+Surprises are supposed to be GOOD, Dan!
+
+**MR. BRAD**  
+A puppy is a surprise. A new car is a surprise. Sugar-coated feces is NOT a surprise!
+
+**MR. PRESTON**  
+It's a biohazard!
+
+**DAN** *(sitting down, defeated)*  
+I messed up. I know I messed up.
+
+*The three of them soften slightly.*
+
+**MEREMIAH** *(sitting next to him)*  
+Look... we know you had good intentions.
+
+**MR. BRAD**  
+But good intentions don't mean much when someone shows up with... that.
+
+**MR. PRESTON**  
+You need to be more careful about who you invite to group events. Especially during the holidays.
+
+**DAN**  
+I know. I'm sorry. I really am.
+
+**MEREMIAH**  
+Are you going to apologize to Maria?
+
+**DAN**  
+Absolutely. And Bello. And everyone else.
+
+**MR. BRAD**  
+And you're helping clean up any lingering smell.
+
+**DAN**  
+Obviously.
+
+**MR. PRESTON**  
+And you're on permanent "check with the group first" probation.
+
+**DAN** *(nodding)*  
+Fair.
+
+*Beat.*
+
+**MEREMIAH**  
+Did she really think sugar would make it taste good?
+
+**DAN**  
+I guess?
+
+**MR. BRAD**  
+That's... genuinely concerning.
+
+**MR. PRESTON**  
+Someone needs to check on her mental health.
+
+**DAN**  
+Not it!
 
 **EVERYONE**  
-YES!
+NOT IT!
 
-**MINA**  
-But we're keeping the conspiracy board. It's kind of a work of art.
+*They all laugh despite themselves.*
 
-**MAY**  
-We should take a picture of it for the memories.
+**MEREMIAH**  
+Alright, come on. Let's go make pancakes and try to salvage this morning.
 
-*Everyone laughs and finally gets to work on breakfast.*
+**DAN**  
+Thanks for not completely destroying me, guys.
+
+**MR. BRAD**  
+Oh, we'll bring this up at every future gathering.
+
+**MR. PRESTON**  
+For YEARS.
+
+**MEREMIAH**  
+Probably decades.
+
+**DAN** *(groaning)*  
+Great.
+
+*They head back to the kitchen together.*
+
+---
+
+## **INT. KITCHEN - CONTINUOUS**
+
+*The group returns. Everyone looks at DAN expectantly.*
+
+**DAN** *(to everyone)*  
+I'm really sorry about Ms. Random. That was... a huge mistake on my part.
+
+**MARIA** *(still recovering)*  
+It's okay... just... don't do it again.
+
+**DAN**  
+Never. I promise.
+
+**BELLO**  
+Apology accepted. Now let's please make these pancakes before anything else happens.
+
+**RITA**  
+Agreed. I'm starving.
+
+*Everyone finally starts cooking together, the chaos beginning to settle.*
 
 ---
 
