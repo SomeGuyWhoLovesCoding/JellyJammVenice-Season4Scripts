@@ -7,7 +7,7 @@
 
 **FADE IN:**
 
-**INT. THE JAMMBONIANS' HOUSE - DECEMBER 1ST - MORNING**
+## **INT. THE JAMMBONIANS' HOUSE - DECEMBER 1ST - MORNING**
 
 *Rapid flashbacks begin with quick cuts between different rooms. The walls are red, rooms simplified with manually modeled furniture and heating machines.*
 
@@ -25,7 +25,7 @@ I still can't believe how cold it gets here in December!
 
 ---
 
-**INT. FRONT ENTRANCE - CONTINUOUS**
+## **INT. FRONT ENTRANCE - CONTINUOUS**
 
 *The door swings open. MR. HOLT, MR. PRESTON, and MR. BRAD enter with armfuls of supplies.*
 
@@ -70,7 +70,7 @@ On it! Preston, Brad, follow me!
 
 **FADE IN:**
 
-**INT. BELLO'S BEDROOM - MORNING - PRESENT DAY**
+## **INT. BELLO'S BEDROOM - MORNING - PRESENT DAY**
 
 *Morning light streams through the window. BELLO's eyes flutter open. He yawns and stretches, then freezes. Everything is unusually quiet.*
 
@@ -84,7 +84,7 @@ EVERYONE! GET UP! YOU GOTTA SEE THIS!
 
 ---
 
-**INT. VARIOUS BEDROOMS - CONTINUOUS**
+## **INT. VARIOUS BEDROOMS - CONTINUOUS**
 
 *The entire crew rushes to their windows.*
 
@@ -101,7 +101,7 @@ Snow! Actual SNOW!
 
 ---
 
-**INT. LIVING ROOM - MOMENTS LATER**
+## **INT. LIVING ROOM - MOMENTS LATER**
 
 *Everyone frantically gets ready in a chaotic rush.*
 
@@ -146,7 +146,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-## **EXT. SNOWY YARD - DAY**
+**EXT. SNOWY YARD - DAY**
 
 **COMEDY MONTAGE - "SNOWMAN CHAOS"**
 
@@ -162,7 +162,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-## **EXT. SNOWY HILL - SUNSET**
+**EXT. SNOWY HILL - SUNSET**
 
 *Everyone sits together on a hill, exhausted but happy, watching the sunset paint the sky orange and pink.*
 
@@ -208,7 +208,7 @@ ME!
 
 ### ACT THREE: PIZZA PALOOZA
 
-**INT. KITCHEN - EVENING**
+## **INT. KITCHEN - EVENING**
 
 *The kitchen is now decorated with festive lights, garland draped across doorways, and a small Christmas tree twinkling in the corner.*
 
@@ -233,7 +233,7 @@ Is that... pepperoni and triple cheese?
 
 ---
 
-**INT. KITCHEN - CONTINUOUS**
+## **INT. KITCHEN - CONTINUOUS**
 
 *The festive kitchen comes alive with activity.*
 
@@ -293,7 +293,7 @@ NO THANKS!
 
 ---
 
-**INT. KITCHEN - MIDDLE OF PARTY**
+## **INT. KITCHEN - MIDDLE OF PARTY**
 
 *Everyone is still eating and laughing. MEREMIAH stands up and clears his throat.*
 
@@ -333,7 +333,7 @@ That's some solid pizza philosophy right there.
 
 ---
 
-**INT. KITCHEN - LATER**
+## **INT. KITCHEN - LATER**
 
 *The party winds down. Everyone is full and happy, sprawled across chairs and leaning against counters.*
 
@@ -400,7 +400,7 @@ Best... Christmas... ever...
 
 **FADE IN:**
 
-**INT. KITCHEN - NEXT MORNING**
+## **INT. KITCHEN - NEXT MORNING**
 
 *Sunlight streams through the windows. JOEYSON is still asleep at the table, head down, a small bit of dried cheese still on his cheek. The empty pizza box sits nearby.*
 
@@ -466,7 +466,7 @@ Pizza can wait! Someone's out there!
 
 ---
 
-## **EXT. FRONT YARD - CONTINUOUS**
+**EXT. FRONT YARD - CONTINUOUS**
 
 *The group bursts outside into the bright snowy morning. They stop dead in their tracks, mouths dropping open.*
 
@@ -563,7 +563,7 @@ Anyway, let's get to work. We didn't have to today originally, but Yannaris STIL
 
 ---
 
-**INT. KITCHEN - MOMENTS LATER**
+## **INT. KITCHEN - MOMENTS LATER**
 
 *The group files back in, still grumbling. MEREMIAH immediately goes back to the pizza boxes.*
 
@@ -637,6 +637,270 @@ Fine. But you're on dish duty too.
 Deal!
 
 *The group starts moving toward the kitchen supplies, the chaos of the morning slowly settling into a new routine.*
+
+*Suddenly, there's a KNOCK at the door.*
+
+**BELLO**  
+Uhh, I don't think we should open it.
+
+**DAN**  
+Oh! I did that!
+
+**BELLO**  
+Who'd you call? Ms Random?
+
+**DAN**  
+Yup. I talked about the photo I secretly took in my old iPhone 4 I actually managed to unlock, just by manually brute-forcing it.
+
+**BELLO**  
+You WHAT!?
+
+**DAN**  
+Ms Random was a teenager at the time she was in the crowd, and I thought her officer uniform looked cool, so I took a picture of it.
+
+**DAN** *(CONT.)*  
+But, my parents didn't like it and wanted me to delete it as they thought I took a picture of someone without their consent, so yeah. She's at the door.
+
+*More knocking.*
+
+**BELLO**  
+I'M COMING...!
+
+*BELLO opens the door and immediately recoils, grossed out by what MS RANDOM is holding.*
+
+**BELLO**  
+Ew, put that away—what is that!?
+
+**MS RANDOM**  
+I'll tell you—
+
+**BELLO**  
+No! Put that away! I don't wanna smell it and potentially barf!
+
+**MS RANDOM**  
+You won't find out what it is, I'll tell you.
+
+*BELLO and each one of his friends start coughing out loud.*
+
+**MR. HOLT** *(from inside)*  
+Thankfully I didn't come out. I was too cold to do it anyway.
+
+**MS RANDOM**  
+Mr Holt, give Bello some medicine, because-
+
+**MR. HOLT** *(appearing at the door)*  
+UUUUGGGHH! What's that!?
+
+**MS RANDOM**  
+Chocolate Christmas Edition.
+
+**BELLO**  
+A chocolate christmas edition, huh? Can you tell me why it smells like SHIT!?
+
+**MS RANDOM**  
+That's exactly what it is. Shit coated with sugar.
+
+**BELLO**  
+YOU ASSHOLE! YOU WENT TO THE WRONG HOUSE, FOOL!
+
+**MS RANDOM**  
+Now, don't get mad, cuz I did get rid of the smell
+
+**BELLO**  
+NO—THAT STILL SMELLS LIKE IT'S MAKING ME BARF!
+
+**MS RANDOM**  
+NO THE HELL IT DOESN'T—
+
+**BELLO**  
+You tell me that's a fucking chocolate christmas edition, but it's just a piece of YOUR SHIT coated with sugar!
+
+**MS RANDOM**  
+So what should I do about it?
+
+**BELLO**  
+THROW IT ANYWHERE—DO NOT SHOW THAT AT US AGAIN! JUST THROW IT OUT BY THAT ROAD OVER THERE OR IN THE TRASH!
+
+**MS RANDOM**  
+Okay—
+
+*MS RANDOM immediately throws the sugar-coated poop into the road.*
+
+**BELLO**  
+I...I didn't mean that, but...okay...
+
+**MINA**  
+I'm about to say that "you're not invited to our pizza palooza"!
+
+**GOOMO**  
+Pancake palooza.
+
+**MINA** *(to GOOMO)*  
+Yeah, I don't care. I just can't believe Ms Random decides to come around us at this time at all...!
+
+**MR. HOLT**  
+We thought you changed!
+
+**MS RANDOM**  
+Look, sorry, I thought coating poop with sugar would make it sugary and delicious...
+
+**BELLO**  
+You are SICK—IN THE FUCKING HEAD! How did your mind even process that!?
+
+**MS RANDOM**  
+I don't know.
+
+**BELLO**  
+Look, don't do that again, or I won't let you in next year, okay?
+
+**MS RANDOM**  
+Okay. I guess I won't.
+
+*YANNARIS suddenly appears from around the corner.*
+
+**YANNARIS**  
+Yo, is that my waifu, bro!?
+
+**BELLO** *(laughing)*  
+Yes... It is your "waifu".
+
+**MS RANDOM**  
+I want food—
+
+**BELLO**  
+No—
+
+*BELLO fails to process what MS RANDOM's about to do next.*
+
+**BELLO**  
+You should at least...ask...
+
+**GOOMO**  
+Alright, we're going back in.
+
+*MARIA suddenly barfs.*
+
+**BELLO**  
+Oh Great! You just made Maria barf! Thanks a lot, Ms Random!
+
+*Everyone rushes back inside and shuts the door, leaving YANNARIS and MS RANDOM outside.*
+
+---
+
+**EXT. FRONT DOOR - CONTINUOUS**
+
+*YANNARIS and MS RANDOM stand awkwardly outside in the cold.*
+
+**YANNARIS**  
+So... you really brought sugar-coated shit to their house?
+
+**MS RANDOM**  
+I thought it would be a good gift!
+
+**YANNARIS**  
+That's disgusting even by MY standards, and I vandalized their snowmen last night.
+
+**MS RANDOM**  
+At least I didn't make them into futanari.
+
+**YANNARIS**  
+...Fair point.
+
+*They both stand in silence for a moment.*
+
+**YANNARIS**  
+You wanna grab coffee or something?
+
+**MS RANDOM**  
+Sure. I need to wash my hands anyway.
+
+*They walk off together through the snow.*
+
+---
+
+## **INT. KITCHEN - CONTINUOUS**
+
+*Everyone is gathered around MARIA, who's still recovering from barfing.*
+
+**RITA** *(handing MARIA water)*  
+You okay?
+
+**MARIA** *(weakly)*  
+That was... so gross...
+
+**NATALIE**  
+I can't believe Dan invited her!
+
+**DAN** *(defensive)*  
+I didn't know she was going to bring... THAT!
+
+**NOT JEREMIAH**  
+Dude, what made you think inviting Ms Random was a good idea?
+
+**DAN**  
+She seemed normal in the picture!
+
+**MEREMIAH**  
+A picture from when she was a teenager! People change!
+
+**JOEYSON**  
+Yeah, and apparently not for the better!
+
+**BELLO** *(sighing)*  
+Okay, everyone calm down. Let's just... forget that happened and focus on making pancakes.
+
+**MAY**  
+Can we even eat after that?
+
+**MR. PRESTON**  
+I've lost my appetite completely.
+
+**MR. BRAD**  
+Same here.
+
+**MINA**  
+Maybe we should just take a break and open some windows. Air this place out.
+
+**GOOMO**  
+Good idea. That smell is still lingering.
+
+*Everyone starts opening windows despite the cold outside.*
+
+**BELLO**  
+You know what? This December has been absolutely insane.
+
+**RITA**  
+First the snow, then Yannaris, then Joeyson eating all the pizza, and now... whatever that was.
+
+**NATALIE**  
+At this rate, what else could possibly happen?
+
+*Everyone freezes and looks at NATALIE.*
+
+**EVERYONE**  
+DON'T JINX IT!
+
+**NATALIE**  
+Sorry! Sorry!
+
+*Beat.*
+
+**BELLO**  
+Alright, once we air this place out, we're making those pancakes. And NO ONE is inviting anyone else over without checking with the group first.
+
+**DAN** *(sheepishly)*  
+Agreed.
+
+**GOOMO**  
+Can we add that as an official house rule?
+
+**MARIA** *(still weak)*  
+Seconded.
+
+**BELLO**  
+Motion passed. Now let's get to work.
+
+*The group begins moving around the kitchen again, opening more windows and starting to gather pancake ingredients, the chaos slowly settling once more.*
 
 ---
 
@@ -745,7 +1009,7 @@ Alright everyone, let's get some sleep. Big day tomorrow!
 
 **DECEMBER 25TH - CHRISTMAS MORNING**
 
-**INT. LIVING ROOM - EARLY MORNING**
+## **INT. LIVING ROOM - EARLY MORNING**
 
 *Soft morning light filters through the windows. The Christmas tree glows softly. Snow falls gently outside.*
 
@@ -764,7 +1028,7 @@ IT'S CHRISTMAS! WAKE UP! WAKE UP!
 
 ---
 
-**INT. VARIOUS BEDROOMS - CONTINUOUS**
+## **INT. VARIOUS BEDROOMS - CONTINUOUS**
 
 *Quick cuts of everyone waking up:*
 
@@ -776,7 +1040,7 @@ IT'S CHRISTMAS! WAKE UP! WAKE UP!
 
 ---
 
-**INT. LIVING ROOM - MOMENTS LATER**
+## **INT. LIVING ROOM - MOMENTS LATER**
 
 *Everyone gathers around the tree in various states of pajamas and morning grogginess. The Koopler Crew arrives at the door.*
 
@@ -871,7 +1135,7 @@ Okay, I deserved that!
 
 ---
 
-**INT. LIVING ROOM - LATER THAT MORNING**
+## **INT. LIVING ROOM - LATER THAT MORNING**
 
 *Everyone is now wearing their ugly Christmas sweaters, sitting around surrounded by wrapping paper, eating pastries and drinking coffee/hot cocoa.*
 
