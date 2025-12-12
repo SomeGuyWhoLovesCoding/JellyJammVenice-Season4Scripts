@@ -146,7 +146,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-**EXT. SNOWY YARD - DAY**
+## **EXT. SNOWY YARD - DAY**
 
 **COMEDY MONTAGE - "SNOWMAN CHAOS"**
 
@@ -162,7 +162,7 @@ Less talking, more snowman building! This snow isn't going to sculpt itself!
 
 ---
 
-**EXT. SNOWY HILL - SUNSET**
+## **EXT. SNOWY HILL - SUNSET**
 
 *Everyone sits together on a hill, exhausted but happy, watching the sunset paint the sky orange and pink.*
 
@@ -466,7 +466,7 @@ Pizza can wait! Someone's out there!
 
 ---
 
-**EXT. FRONT YARD - CONTINUOUS**
+## **EXT. FRONT YARD - CONTINUOUS**
 
 *The group bursts outside into the bright snowy morning. They stop dead in their tracks, mouths dropping open.*
 
@@ -787,7 +787,7 @@ Oh Great! You just made Maria barf! Thanks a lot, Ms Random!
 
 ---
 
-**EXT. FRONT DOOR - CONTINUOUS**
+## **EXT. FRONT DOOR - CONTINUOUS**
 
 *YANNARIS and MS RANDOM stand awkwardly outside in the cold.*
 
@@ -900,7 +900,203 @@ Seconded.
 **BELLO**  
 Motion passed. Now let's get to work.
 
-*The group begins moving around the kitchen again, opening more windows and starting to gather pancake ingredients, the chaos slowly settling once more.*
+*Everyone starts gathering pancake ingredients. Suddenly, MR. PRESTON points accusingly at MR. BRAD.*
+
+**MR. PRESTON**  
+You know what? This is all YOUR fault, Brad!
+
+**MR. BRAD** *(confused)*  
+Excuse me? How is Ms. Random bringing literal shit to the door MY fault?
+
+**MR. PRESTON**  
+Not just that! You jinxed us! Yesterday morning, you said "This is going to be the perfect December!" Remember?
+
+**MR. BRAD**  
+So what? That's called being optimistic!
+
+**MR. PRESTON**  
+Optimistic? We've had NOTHING but disasters since you said that! The snowmen got vandalized, Joeyson ate all the pizza, and now the sugar-coated poop incident!
+
+**MR. HOLT** *(trying to stay out of it)*  
+Guys, I don't think that's how jinxes work...
+
+**MR. BRAD**  
+Oh, you want to talk about jinxes? What about when YOU said "At least nothing else can go wrong" right before Yannaris showed up?
+
+**MR. PRESTON**  
+That was AFTER you jinxed us! I was already operating under your curse!
+
+**NATALIE**  
+Uh, I'm the one who just jinxed us a minute ago...
+
+**MR. PRESTON** *(ignoring her)*  
+And another thing! Who suggested we build the snowmen in the FRONT yard where anyone could vandalize them?
+
+**MR. BRAD**  
+That was a GROUP decision!
+
+**MR. PRESTON**  
+You said, and I quote, "The front yard has better snow!" Well look how that turned out!
+
+**BELLO**  
+Okay, this is getting ridiculous—
+
+**MR. BRAD**  
+Oh yeah? Well who left the pizza boxes on the counter instead of putting them in the fridge like Mina suggested?
+
+**MR. PRESTON**  
+Don't you DARE pin Joeyson's lack of self-control on me!
+
+**RITA**  
+They're really going at it...
+
+**MR. BRAD**  
+And WHO answered the door for Ms. Random? Oh wait, that was Bello, but you were STANDING RIGHT THERE and didn't stop him!
+
+**MR. PRESTON**  
+I was in the back! I specifically said I was too cold to come out!
+
+**MR. BRAD**  
+Convenient excuse!
+
+*MR. PRESTON suddenly gets up and starts gathering papers and string.*
+
+**GOOMO**  
+What are you doing?
+
+**MR. PRESTON**  
+I'm going to PROVE that Brad jinxed us!
+
+*He starts creating a conspiracy board on the wall, connecting events with string.*
+
+**MR. PRESTON** *(pointing at his makeshift board)*  
+Look! December 1st - Brad says "perfect December." December 2nd - SNOW happens, which leads to snowmen, which leads to Yannaris!
+
+**MR. BRAD**  
+Snow is a GOOD thing!
+
+**MR. PRESTON**  
+Not when it enables VANDALISM! Then, Brad suggests we have a pizza party—
+
+**MR. BRAD**  
+The Koopler Crew suggested that!
+
+**MR. PRESTON**  
+—which YOU encouraged! And that led to Joeyson's betrayal!
+
+**NOT JEREMIAH**  
+Hey, don't drag us into this!
+
+**MR. PRESTON** *(adding more string)*  
+And THEN, Brad was the one who said "I wonder who's at the door" which made Bello WANT to open it!
+
+**BELLO**  
+I don't think I needed encouragement...
+
+**MR. BRAD** *(standing up)*  
+You want to play the blame game? Fine!
+
+*MR. BRAD grabs different colored string and starts making his own connections on the board.*
+
+**MR. BRAD**  
+Preston, December 1st, 9 AM - YOU said "What could possibly go wrong with the heating system?" BOOM! West wing drops to freezing!
+
+**MR. PRESTON**  
+That's not even the same day as my comment!
+
+**MR. BRAD**  
+It's the SPIRIT of the jinx! Then YOU were the one who said "I hope Yannaris doesn't find out about the pizza party"—you SPOKE IT INTO EXISTENCE!
+
+**MR. PRESTON**  
+I never said that!
+
+**MR. BRAD**  
+You were THINKING it! I could see it on your face!
+
+**MINA** *(watching the board)*  
+This is... actually kind of impressive?
+
+**MAY**  
+They've connected everything to everything.
+
+*The board is now a chaotic web of string, notes, and accusations.*
+
+**MR. PRESTON**  
+And let's not forget who ate THREE slices of pizza, reducing our backup breakfast supply!
+
+**MR. BRAD**  
+That's grasping at straws and you know it!
+
+**MR. PRESTON**  
+The math PROVES you contributed to the shortage!
+
+**JOEYSON** *(quietly)*  
+I mean, I ate the saved slices, so...
+
+**MR. PRESTON & MR. BRAD** *(simultaneously)*  
+NOT NOW, JOEYSON!
+
+**DAN**  
+Should we stop them?
+
+**MEREMIAH**  
+I kind of want to see where this goes.
+
+**MR. BRAD** *(pulling out more string)*  
+You know what the REAL problem is? You're a pessimist! You expect things to go wrong, so they DO!
+
+**MR. PRESTON**  
+And YOU'RE too optimistic! You tempt fate with your reckless positivity!
+
+**BELLO** *(finally stepping in)*  
+OKAY! ENOUGH!
+
+*Everyone freezes.*
+
+**BELLO**  
+Neither of you jinxed anything! Sometimes crazy stuff just HAPPENS! Yannaris has always been weird, Joeyson loves pizza too much, and Dan made a questionable decision inviting Ms. Random!
+
+**DAN**  
+Hey!
+
+**BELLO**  
+The point is - none of this is because someone said something optimistic OR pessimistic! It's just... December being December!
+
+**RITA**  
+He's right. This is just how the holidays go sometimes.
+
+**GOOMO**  
+Chaotic and unpredictable.
+
+**NATALIE**  
+But ultimately still fun?
+
+*MR. PRESTON and MR. BRAD look at each other, then at their elaborate conspiracy board.*
+
+**MR. PRESTON** *(sheepishly)*  
+I... may have gotten a little carried away.
+
+**MR. BRAD**  
+Yeah, same here. Sorry for saying you jinxed us.
+
+**MR. PRESTON**  
+And I'm sorry for blaming your optimism.
+
+*They shake hands.*
+
+**MR. HOLT**  
+So are we finally making those pancakes?
+
+**EVERYONE**  
+YES!
+
+**MINA**  
+But we're keeping the conspiracy board. It's kind of a work of art.
+
+**MAY**  
+We should take a picture of it for the memories.
+
+*Everyone laughs and finally gets to work on breakfast.*
 
 ---
 
