@@ -281,244 +281,6 @@ We won't. I promise.
 
 They keep cleaning.
 
-**MEREMIAH**
-(from his box)
-How long have they been at this?
-
-**NOT JEREMIAH**
-(checking his watch)
-About forty-five minutes.
-
-**MEREMIAH**
-How much longer do you think it'll take?
-
-**NOT JEREMIAH**
-Hours. Maybe all night.
-
-**MEREMIAH**
-Good.
-
-**DAN**
-(to Jayride and Jayson)
-Work faster. The sun's going to be up soon.
-
-**JAYSON**
-We're going as fast as we can.
-
-**DAN**
-Well, go faster.
-
-Suddenly, a loud CRASH from outside. A window opens—not breaks, but opens forcefully.
-
-MR. HOLT (50s, weathered face, serious expression) climbs through the attic window with a crowbar. He looks shocked, taking in the scene—Jayride and Jayson cleaning, Dan watching, the wall still smelling wrong.
-
-**MR. HOLT**
-What in god's name happened here?
-
-Everyone freezes. Nobody was expecting Mr. Holt to show up like this.
-
-**NOT JEREMIAH**
-Mr. Holt? What are you doing here?
-
-**MR. HOLT**
-I heard screaming. From outside. I was doing my night rounds and I heard someone scream bloody murder. I thought someone was being killed.
-
-**MEREMIAH**
-That was me. I got sprayed with ant spray.
-
-**MR. HOLT**
-(looking at Meremiah's red eyes)
-Jesus Christ. Who did that to you?
-
-**MEREMIAH**
-(pointing at Jayride)
-He did.
-
-Mr. Holt's expression darkens. He looks at Jayride, then at Jayson, then at the wall.
-
-**MR. HOLT**
-(slowly)
-Somebody better start explaining what happened here. Right now.
-
-**DAN**
-(explaining quickly)
-They... they did stuff to my wall. Bad stuff. We made them clean it up.
-
-**NOT JEREMIAH**
-They also drugged Meremiah with melatonin powder and then sprayed him with ant spray when he tried to stop them.
-
-Mr. Holt surveys the scene, then looks at Jayride and Jayson with a mixture of disappointment and anger.
-
-**MR. HOLT**
-(to Jayride and Jayson)
-You two are restricted from the attic. Indefinitely.
-
-He walks over to them, his heavy boots making loud sounds on the attic floor.
-
-**MR. HOLT** (CONT'D)
-And I'm taking your phones.
-
-**JAYRIDE**
-Not Jeremiah already took them.
-
-**MR. HOLT**
-(to Not Jeremiah)
-Give them to me.
-
-Not Jeremiah hands over both phones. Mr. Holt takes them and starts scrolling through one of them.
-
-**MR. HOLT** (CONT'D)
-Let me see what you've been doing.
-
-He scrolls through it, checking the search history. Nothing comes up.
-
-**MR. HOLT** (CONT'D)
-You were in incognito mode.
-
-**JAYRIDE**
-(nervously)
-Yeah, we were, but we turned it off before—
-
-Mr. Holt opens the browser. His face goes pale as he sees what pops up. There are 83 open tabs—all pornographic sites, all extremely explicit content.
-
-**MR. HOLT**
-(quietly)
-Eighty-three tabs?
-
-He keeps scrolling. The number keeps going up. 202 inactive tabs. More of the same.
-
-**MR. HOLT** (CONT'D)
-(voice rising)
-Two hundred and two?
-
-**JAYSON**
-(quickly)
-Those ad pop-ups kept opening. Every site we went to had the same ad. And when we clicked on one, it just opened more tabs. We couldn't stop them. That's how we lost track of how many we had.
-
-**JAYRIDE**
-(nodding frantically)
-Yeah, it's like a virus or something. We tried to close them but they just kept opening more.
-
-**MR. HOLT**
-(staring at the phone)
-Do you have any idea what you're doing to yourselves? Any idea at all?
-
-**JAYSON**
-We were just—
-
-**MR. HOLT**
-(cutting him off)
-Just what? Just destroying your minds? Just corrupting yourselves? Just turning into people who violate other people's property and poison other people and LIE about it?
-
-His hands are shaking. His eyes fill with tears. He sits down slowly on a nearby box, overwhelmed.
-
-**MR. HOLT** (CONT'D)
-(quietly)
-What are you two doing to yourselves?
-
-Meremiah appears in the attic doorway, looking at the scene unfolding.
-
-**MEREMIAH**
-(to Jayride and Jayson)
-You two need to leave.
-
-**JAYRIDE**
-We're trying to clean—
-
-**MEREMIAH**
-I said leave.
-
-**NOT JEREMIAH**
-Actually, they need to finish cleaning first.
-
-**MEREMIAH**
-(voice rising)
-They sprayed me! One of them sprayed me in the face with poison!
-
-**JAYRIDE**
-(stepping forward)
-It was me. I'm the one who did it. I sprayed you. Jayson didn't do that part.
-
-**JAYSON**
-(quickly)
-But I did the melatonin thing. That was me.
-
-For a moment, Dan looks like he's about to say something harsh. But then his expression softens. He realizes Meremiah is hurt. He starts feeling sorry for him.
-
-**DAN**
-(to Not Jeremiah)
-He got hurt. Meremiah got hurt.
-
-**NOT JEREMIAH**
-Yeah. He did.
-
-Dan and Not Jeremiah both start crying—not sobbing, but quiet tears running down their faces. The reality of what happened is finally hitting them.
-
-**KELLY** (O.S.)
-(from downstairs)
-Hey, can I come in?
-
-**NOT JEREMIAH**
-(wiping his eyes)
-No. The attic is in maintenance right now.
-
-**KELLY** (O.S.)
-Okay.
-
-They hear her footsteps heading downstairs.
-
-There's a moment of silence. Everyone is processing what's happened.
-
-Then Meremiah's face changes. His expression shifts from pain to rage.
-
-**MEREMIAH**
-(suddenly screaming)
-YOU FUCKING WHAT!?
-
-Everyone jumps at the sudden outburst.
-
-**NOT JEREMIAH**
-Meremiah, calm down—
-
-**MEREMIAH**
-(still shouting)
-CALM DOWN!? THEY POISONED ME! THEY VIOLATED DAN'S SPACE! AND THEY TOOK PICTURES OF IT LIKE IT WAS SOME KIND OF JOKE!
-
-**DAN**
-(putting his hand on Meremiah's shoulder)
-I know. I know. But yelling isn't going to fix it.
-
-**MEREMIAH**
-(voice breaking)
-I tried to protect the wall. I tried to do what you asked. And I failed.
-
-**DAN**
-You didn't fail. You got hurt trying to protect it. That means something.
-
-**MEREMIAH**
-(sitting back down)
-Does it?
-
-**DAN**
-Yeah. It does.
-
-Mr. Holt stands up, still holding the phones.
-
-**MR. HOLT**
-(to Jayride and Jayson)
-You two need to understand something. What you did tonight wasn't just a prank. It wasn't just kids being stupid. You violated someone's trust. You poisoned someone. You documented your crimes like they were entertainment.
-
-**JAYRIDE**
-We know. We're sorry.
-
-**MR. HOLT**
-Sorry doesn't cut it. You need to feel the weight of what you've done. You need to understand that actions have consequences.
-
-He takes a step toward them, and there's something dangerous in his eyes.
-
-**MR. HOLT** (CONT'D)
-And I'm going to make sure you understand.
-
 ---
 
 ## FADE OUT
@@ -1304,27 +1066,88 @@ What the—
 
 His voice is loud. Too loud.
 
-Jayride—who heard his footsteps—grabs a can of ant spray from somewhere in the attic and sprays it directly at Meremiah's face.
+**JAYRIDE**
+(spinning around)
+Oh shit!
 
-Meremiah screams and staggers backward, his hands covering his face.
+**MEREMIAH**
+(looking at the wall in horror)
+What did you do? What the fuck did you do to Dan's wall?
+
+**JAYSON**
+(stepping forward)
+Listen, man, we can explain—
+
+**MEREMIAH**
+(voice rising)
+Explain? EXPLAIN? You violated his space! You destroyed the one thing he cared about!
+
+**JAYRIDE**
+(defensive)
+It's just a wall!
+
+**MEREMIAH**
+It's not just a wall to him! And you knew that!
+
+Meremiah starts moving toward them, his movements still sluggish from the melatonin but filled with anger.
+
+**MEREMIAH** (CONT'D)
+I'm going to wake up Dan. I'm going to wake up everyone. And you two are going to pay for this.
+
+**JAYRIDE**
+(panicking)
+No, wait—
+
+Jayride looks around frantically and spots a can of ant spray on a nearby shelf. He grabs it.
+
+**JAYSON**
+(seeing the spray)
+Jayride, don't—
+
+But Jayride is already moving. He runs toward Meremiah and sprays the ant spray directly at Meremiah's face.
+
+The stream hits Meremiah square in the eyes.
+
+**MEREMIAH**
+(screaming)
+AHHHHH! MY EYES! MY FUCKING EYES!
+
+Meremiah staggers backward, his hands covering his face. He stumbles over a box and falls to the ground, still screaming.
 
 **MEREMIAH** (CONT'D)
 (screaming)
-MY EYES! MY FUCKING EYES!
+IT BURNS! OH GOD IT BURNS!
 
 The sound echoes through the house.
 
 It's loud. Loud enough to wake people downstairs.
 
 **JAYRIDE**
-(panicking)
+(dropping the can, horrified at what he's done)
 Shit! Shit, shit, shit!
 
 **JAYSON**
 (also panicking)
+What did you do!? Why did you spray him!?
+
+**JAYRIDE**
+I don't know! I panicked! I didn't want him to tell Dan!
+
+**MEREMIAH**
+(on the ground, writhing in pain)
+I CAN'T SEE! I CAN'T SEE ANYTHING!
+
+**JAYSON**
+(to Jayride)
 We need to hide! Now!
 
-They scramble to find hiding spots in the attic as Meremiah continues to scream, stumbling around blindly.
+**JAYRIDE**
+What about him?
+
+**JAYSON**
+There's nothing we can do! Come on!
+
+They scramble to find hiding spots in the attic as Meremiah continues to scream, stumbling around blindly, trying to find something to wash his eyes with.
 
 ---
 
@@ -1594,4 +1417,332 @@ You two. You did this.
 
 They don't answer. They just stand there, looking at the ground.
 
+## Hours later.
+
+**MEREMIAH**
+(from his box)
+How long have they been at this?
+
 **NOT JEREMIAH**
+(checking his watch)
+About forty-five minutes.
+
+**MEREMIAH**
+How much longer do you think it'll take?
+
+**NOT JEREMIAH**
+Hours. Maybe all night.
+
+**MEREMIAH**
+Good.
+
+**DAN**
+(to Jayride and Jayson)
+Work faster. The sun's going to be up soon.
+
+**JAYSON**
+We're going as fast as we can.
+
+**DAN**
+Well, go faster.
+
+Suddenly, a loud CRASH from outside. A window opens—not breaks, but opens forcefully.
+
+MR. HOLT (50s, weathered face, serious expression) climbs through the attic window with a crowbar. He looks shocked, taking in the scene—Jayride and Jayson cleaning, Dan watching, the wall still smelling wrong.
+
+**MR. HOLT**
+What in god's name happened here?
+
+Everyone freezes. Nobody was expecting Mr. Holt to show up like this.
+
+**NOT JEREMIAH**
+Mr. Holt? What are you doing here?
+
+**MR. HOLT**
+Your neighbors heard screaming from outside while I was doing my night rounds and I heard someone scream bloody murder. I thought someone was being killed.
+
+**MEREMIAH**
+That was me. I got sprayed with ant spray.
+
+**MR. HOLT**
+(looking at Meremiah's red eyes)
+Jesus Christ. Who did that to you?
+
+**MEREMIAH**
+(pointing at Jayride)
+He did.
+
+Mr. Holt's expression darkens. He looks at Jayride, then at Jayson, then at the wall.
+
+**MR. HOLT**
+(slowly)
+Somebody better start explaining what happened here. Right now.
+
+**DAN**
+(explaining quickly)
+They... they did stuff to my wall. Bad stuff. We made them clean it up.
+
+**NOT JEREMIAH**
+They also drugged Meremiah with melatonin powder and then sprayed him with ant spray when he tried to stop them.
+
+Mr. Holt surveys the scene, then looks at Jayride and Jayson with a mixture of disappointment and anger.
+
+**MR. HOLT**
+(to Jayride and Jayson)
+You two are restricted from the attic. Indefinitely.
+
+He walks over to them, his heavy boots making loud sounds on the attic floor.
+
+**MR. HOLT** (CONT'D)
+And I'm taking your phones.
+
+**JAYRIDE**
+Not Jeremiah already took them.
+
+**MR. HOLT**
+(to Not Jeremiah)
+Give them to me.
+
+Not Jeremiah hands over both phones. Mr. Holt takes them and starts scrolling through one of them.
+
+**MR. HOLT** (CONT'D)
+Let me see what you've been doing.
+
+He scrolls through it, checking the search history. Nothing comes up.
+
+**MR. HOLT** (CONT'D)
+You were in incognito mode.
+
+**JAYRIDE**
+(nervously)
+Yeah, we were, but we turned it off before—
+
+Mr. Holt opens the browser. His face goes pale as he sees what pops up. There are 83 open tabs—all pornographic sites, all extremely explicit content.
+
+**MR. HOLT**
+(quietly)
+Eighty-three tabs?
+
+He keeps scrolling. The number keeps going up. 202 inactive tabs. More of the same.
+
+**MR. HOLT** (CONT'D)
+(voice rising)
+Two hundred and two?
+
+**JAYSON**
+(quickly)
+Those ad pop-ups kept opening. Every site we went to had the same ad. And when we clicked on one, it just opened more tabs. We couldn't stop them. That's how we lost track of how many we had.
+
+**JAYRIDE**
+(nodding frantically)
+Yeah, it's like a virus or something. We tried to close them but they just kept opening more.
+
+**MR. HOLT**
+(staring at the phone)
+Do you have any idea what you're doing to yourselves? Any idea at all?
+
+**JAYSON**
+We were just—
+
+**MR. HOLT**
+(cutting him off)
+Just what? Just destroying your minds? Just corrupting yourselves? Just turning into people who violate other people's property and poison other people and LIE about it?
+
+His hands are shaking. His eyes fill with tears. He sits down slowly on a nearby box, overwhelmed.
+
+**MR. HOLT** (CONT'D)
+(quietly)
+What are you two doing to yourselves?
+
+Meremiah appears in the attic doorway, looking at the scene unfolding.
+
+**MEREMIAH**
+(to Jayride and Jayson)
+You two need to leave.
+
+**JAYRIDE**
+We're trying to clean—
+
+**MEREMIAH**
+I said leave.
+
+**NOT JEREMIAH**
+Actually, they need to finish cleaning first.
+
+**MEREMIAH**
+(voice rising)
+They sprayed me! One of them sprayed me in the face with poison!
+
+**JAYRIDE**
+(stepping forward)
+It was me. I'm the one who did it. I sprayed you. Jayson didn't do that part.
+
+**JAYSON**
+(quickly)
+But I did the melatonin thing. That was me.
+
+For a moment, Dan looks like he's about to say something harsh. But then his expression softens. He realizes Meremiah is hurt. He starts feeling sorry for him.
+
+**DAN**
+(to Not Jeremiah)
+He got hurt. Meremiah got hurt.
+
+**NOT JEREMIAH**
+Yeah. He did.
+
+Dan and Not Jeremiah both start crying—not sobbing, but quiet tears running down their faces. The reality of what happened is finally hitting them.
+
+**KELLY** (O.S.)
+(from downstairs)
+Hey, can I come in?
+
+**NOT JEREMIAH**
+(wiping his eyes)
+No. The attic is in maintenance right now.
+
+**KELLY** (O.S.)
+Okay.
+
+They hear her footsteps heading downstairs.
+
+There's a moment of silence. Everyone is processing what's happened.
+
+Then Meremiah's face changes. His expression shifts from pain to rage.
+
+**MEREMIAH**
+(suddenly screaming)
+YOU FUCKING WHAT!?
+
+Everyone jumps at the sudden outburst.
+
+**NOT JEREMIAH**
+Meremiah, calm down—
+
+**MEREMIAH**
+(still shouting)
+CALM DOWN!? THEY POISONED ME! THEY VIOLATED DAN'S SPACE! AND THEY TOOK PICTURES OF IT LIKE IT WAS SOME KIND OF JOKE!
+
+**DAN**
+(putting his hand on Meremiah's shoulder)
+I know. I know. But yelling isn't going to fix it.
+
+**MEREMIAH**
+(voice breaking)
+I tried to protect the wall. I tried to do what you asked. And I failed.
+
+**DAN**
+You didn't fail. You got hurt trying to protect it. That means something.
+
+**MEREMIAH**
+(sitting back down)
+Does it?
+
+**DAN**
+Yeah. It does.
+
+Mr. Holt stands up, still holding the phones.
+
+**MR. HOLT**
+(to Jayride and Jayson)
+You two need to understand something. What you did tonight wasn't just a prank. It wasn't just kids being stupid. You violated someone's trust. You poisoned someone. You documented your crimes like they were entertainment.
+
+**JAYRIDE**
+We know. We're sorry.
+
+**MR. HOLT**
+Sorry doesn't cut it. You need to feel the weight of what you've done. You need to understand that actions have consequences.
+
+He takes a step toward them, and there's something dangerous in his eyes.
+
+**MR. HOLT** (CONT'D)
+And I'm going to make sure you understand.
+
+**NOT JEREMIAH**
+(cautiously)
+Mr. Holt, what are you—
+
+Mr. Holt doesn't answer. He lunges at Jayson, grabbing him by the shirt. He throws him against the attic wall. Jayson hits it hard and staggers forward.
+
+**MR. HOLT**
+(shouting)
+You didn't mean to? You didn't mean to violate someone's space and then take pictures of it?
+
+**DAN**
+(shocked)
+Whoa! I've never seen you like this before—
+
+Jayride tries to run, but Mr. Holt catches him by the arm and spins him around. He lands a solid punch directly to Jayride's stomach. Jayride doubles over, gasping for air.
+
+**JAYRIDE**
+(struggling to breathe)
+Stop! Please—
+
+**MR. HOLT**
+(grabbing Jayride's shirt)
+You think this is a game? You think this is funny?
+
+He punches Jayride in the face. Blood comes from Jayride's nose. His head snaps back.
+
+**KELLY** (O.S.)
+(from downstairs, hearing the commotion)
+What's happening up there!?
+
+Jayson tries to crawl away, but Mr. Holt kicks him in the ribs. Jayson cries out, doubling over.
+
+**MR. HOLT**
+(breathing heavily)
+You two need to understand what you've done. You need to feel it. You need to know the weight of it.
+
+Mr. Holt grabs Jayson and throws him toward the wall. Jayson crashes into it and falls to the ground.
+
+**JAYSON**
+(crying)
+We're sorry! We're sorry!
+
+**MR. HOLT**
+(pointing at both of them)
+Sorry doesn't cut it. You violated someone's trust. You violated their space. And then you documented it like it was entertainment.
+
+**NOT JEREMIAH**
+(stepping forward)
+Mr. Holt, I think that's enough—
+
+**MR. HOLT**
+(whirling on him)
+Enough? ENOUGH? They poisoned someone! They destroyed property! They took pictures like it was a trophy!
+
+He takes a step toward them again, his fists still clenched. He looks at both of them—bloodied, crying, broken on the ground.
+
+**MR. HOLT** (CONT'D)
+(quieter, but more intense)
+If I ever find out you've done something like this again, I'm going to make sure you regret every second of your pathetic lives. Do you understand me?
+
+**JAYRIDE and JAYSON**
+(nodding, crying)
+Yes. Yes. We understand.
+
+**MEREMIAH**
+(quietly, from his box)
+Good.
+
+**DAN**
+(to Mr. Holt)
+Thank you.
+
+Mr. Holt doesn't respond. He just stands there, breathing heavily, his hands still shaking with anger.
+
+**NOT JEREMIAH**
+(to Dan and Meremiah)
+Come on. Let's go downstairs. Let them finish cleaning.
+
+**DAN**
+But I need to make sure—
+
+**NOT JEREMIAH**
+They'll finish. And if they don't, Mr. Holt will make sure they do. Right?
+
+**MR. HOLT**
+(still staring at Jayride and Jayson)
+Right.
+
+Dan, Not Jeremiah, and Meremiah leave the attic slowly, exhausted from the night.
